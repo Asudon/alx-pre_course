@@ -1,1 +1,1 @@
-Doing the hard thing always.
+Be ready to do the hard things
